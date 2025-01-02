@@ -1,4 +1,4 @@
-![Steve](https://media.discordapp.net/attachments/663184876886949908/980932905209577502/Screenshot_2022-05-30_163025-removebg-preview.png)
+Perdere te ipsum - Eminem
 
 ---
 
